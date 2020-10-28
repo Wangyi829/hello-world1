@@ -1,2 +1,8 @@
 # hello-world1
 Just another repository
+I have had my invitation to this world's festival, and thus my life has been blessed.
+Give me the strength lightly to bear my joys and sorrows.
+Give me the strength to make my love fruitful in service.
+Give me the strength never to disown the poor or bend my knees before insolent might.
+Give me the strength to raise my mind high above daily trifles.
+And give me the strength to surrender my strength to thy will with love.
